@@ -4,7 +4,7 @@
 
 ### Preguntas del día dd/mm/aa
 
-1. Tu respuesta:
+1. Tu respuesta: Ángel García Pérez
 
 2. Tu respuesta:
 
